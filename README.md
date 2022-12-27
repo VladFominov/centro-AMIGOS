@@ -1,1 +1,1 @@
-# centro-AMIGOS
+# centro-amigos
